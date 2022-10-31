@@ -1,1 +1,1 @@
-# Labaratorka-2
+# Labaratorka-2 Egorov
